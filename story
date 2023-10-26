@@ -1,1 +1,1 @@
-Once upon a time, a Monkey lived on tree . he was best freinds with a crocodile, he used sit on his back and cross the river daily. 
+Once upon a time, a Monkey lived on tree . he was best freinds with a crocodile, he used sit on his back and cross the river daily.  one day the crocodile was resting under the treee and the Monkey offered him some fruits 
